@@ -1,0 +1,6 @@
+# discorddenemebot
+
+
+
+
+çalanın anaSkm
